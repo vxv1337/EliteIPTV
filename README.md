@@ -9,7 +9,7 @@ Stop overpaying for 5 different streaming apps. Get every channel, every movie, 
 
 💰 PRICING:
 📌 1 Month: £10.00 (Perfect for testing)
-📌 3 Months: £25.00 (Best value short-term)
+📌 3 Months: £20.00 (Best value short-term)
 📌 12 Months: £51.99. (TOP SELLER - Less than £6/month!)
 
 🌟 FREE TRIALS AVAILABLE 🌟
